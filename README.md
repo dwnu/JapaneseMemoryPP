@@ -1,1 +1,1 @@
-### Japanese Memory - Privacyu Policy
+### Japanese Memory - Privacy Policy
